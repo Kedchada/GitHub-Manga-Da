@@ -1,4 +1,4 @@
-## Ep.5–Echo–of–the–Unseen
+## Ep.5 Echo of the Unseen
 
 “ถ้าเขาคือปีศาจ... แล้วฉันคืออะไร?”
 
